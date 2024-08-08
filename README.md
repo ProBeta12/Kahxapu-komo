@@ -17,7 +17,6 @@ Oferecemos uma variedade de produtos, incluindo:
 - **Roupas**: Vestimentas tradicionais e modernas com estampas e designs indígenas.
 - **Joias**: Colares, pulseiras, brincos e outros adornos únicos.
 - **Arte**: Pinturas, esculturas e outros trabalhos artísticos autênticos.
-- 
 
 ## Contato
 

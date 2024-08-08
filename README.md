@@ -4,7 +4,7 @@
 
 ## Sobre Nós
 
-Na Kahxapu-komo, acreditamos na importância de preservar e celebrar a rica herança cultural das comunidades indígenas. Cada peça disponível em nosso site é cuidadosamente selecionada para garantir a autenticidade e a qualidade, trazendo para você uma conexão genuína com as tradições e histórias dos povos indígenas.
+Na Kahxapu-komo, acreditamos na importância de preservar e celebrar a rica herança cultural das comunidades indígenas. Cada peça disponível em nosso site é cuidadosamente selecionada para garantir a autenticidade e a qualidade, trazendo para você uma conexão genuína com as tradições e histórias dos povos indígenas da região.
 
 ## Nossa Missão
 
